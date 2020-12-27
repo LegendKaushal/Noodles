@@ -1,4 +1,4 @@
-# Egg Nodles
+# Egg Noodles
 How to Make Egg Noodles
 
 Ingredients
